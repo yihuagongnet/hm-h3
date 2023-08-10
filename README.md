@@ -1,4 +1,4 @@
-# hm-h3 kxhm开新韩漫永久网址：
+# hm-h3 kxhm开心韩漫永久网址：
 
 https://kxhm.cfd
 
@@ -9,7 +9,7 @@ https://kxhm.cfd
 
 也可以发邮件索取最新网址:yihuagongnet@gmail.com
 ```
-# hm-h3 kxhm开新韩漫最新网址：
+# hm-h3 kxhm开心韩漫最新网址：
 
 https://kxhm.sbs
 
