@@ -11,6 +11,8 @@ https://kxhm.cfd
 ```
 # hm-h3 kxhm开心韩漫最新网址：
 
+**https://hanmankaixin.com** （2023.8.16更新）
+
 https://kxhm.sbs
 
 https://kxhm.top
