@@ -13,6 +13,8 @@ https://kxhm.cfd
 
 **https://hanmankaixin.com** （2023.8.16更新）
 
+https://kxhm.gay （2023.8.16更新）
+
 https://kxhm.sbs
 
 https://kxhm.top
